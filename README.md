@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @MEDRWED
+- 👋 im programer in python program language 
+- 👋 and bash script if you want me to program 
+- 👋 some thing for you send messege to my email
+- 👋 mohammed07702033513@gmail.com
+- 👋 and write what you want me to do
+- 👋 and i will send for you file in it what you wanted
+- 👋 bye bye
